@@ -1,5 +1,5 @@
 # about_me
-##Krista Schinkel##
+**Krista Schinkel**
 
 Hello! My name is Krista Schinkel. I am 20 years old and I live in LaSalle. I graduated from Maranatha Christian Academy and went into St. Clair College for an easy 1 year program- General Arts and Science. The following year I decided to pursue Graphic Design, because I knew it would be a good fit for me! I have always enjoyed creating art pieces and being able to see the finished works. 
 
